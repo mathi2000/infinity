@@ -1,0 +1,2 @@
+# infinity
+Life is short
